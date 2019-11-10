@@ -6,3 +6,15 @@
 ### Hotline: 0822700800 - 0889616679
 ### Website: http://vnpt24h.vn/
 ### Sản phẩm -dịch vụ: Internet Cáp quang, Truyền hình Mytv, Chữ ký sô VNPT-CA, Hóa đơn điện tử, di động trả trước Vinaphone, di động trả sau Vinaphone.
+-----
+# CÁC GÓI CƯỚC INTERNET CÁP QUANG - TRUYỀN HÌNH MYTV DÀNH CHO CÁ NHÂN, HỘ GIA ĐÌNH
+>KHUYẾN MÃI 11/2019: trả trả trước 6 tháng tặng thêm 2 tháng, trả trước 12 tháng tặng thêm 4 tháng.
+1. HOME INTERNET
+1.1 Home 1 - VNPT 30Mbps, 189.000 đ/tháng
+1.2 Home 2 - VNPT 40Mbps, 219.000 đ/tháng
+1.3 Home 3 - VNPT 50Mbps, 259.000 đ/tháng
+1.4 Home Net - VNPT 150Mbps, IP tĩnh, Cam kết tốc độ quốc tế
+2. HOME TV - Combo Internet + truyền hình
+2.1 Home TV1 - VNPT 30Mbps + truyền hình MYTV, từ 195.000 đ/tháng
+2.2 Home TV2 - VNPT 40Mbps + truyền hình MYTV, từ 225.000 đ/tháng
+2.3 Home TV3 - VNPT 50Mbps + truyền hình MYTV, từ 265.000 đ/tháng
